@@ -11,5 +11,5 @@ I'm in the Virginia and National Associations for the Gifted since 2011 And IEEE
 
 I don't drink Alcholol, Smoke, or do illegal drugs. Moral, Loyal, Educated, Computer Science, Music, Swimming and Reading, I am a Moore #1 Irish pedigree. and Heritage activist. Microsoft Partner and in Adobe contract. Royal Society of the Arts Fellow. I don't believe in making a persons heritage extinct only forward and extant. I frequently read Burke's Peerage. And I also know society is zero sum and will only go to fairs. I received straight A's in computer science in college at Tenn Tech and a 3.0 at UVa. Recently downloaded my SCO Open Server 5 what used to be MIcrosoft Xenix and wanting to install it on my older desktop
 
-I resecenly gave a substancal gift to the University of Washignton's Presidents Fund in memory of my mother and father. in hope to maybe someday soon to build thier Spin Operating System. 'Spin the Black Circle' ---Via Va La Vinyl
+I resecenly gave a substancal gift to the University of Washignton's Presidents Fund in memory of my mother and father. In hope to maybe someday soon to build thier Spin Operating System. 'Spin the Black Circle' ---Via Va La Vinyl
 
