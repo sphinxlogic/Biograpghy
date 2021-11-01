@@ -36,6 +36,8 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [11 of the oldest animals ever, ranked by age](https://www.businessinsider.com/some-of-worlds-oldest-animals-ranked-by-age-2019-4)
 
+[Politically Correct Labels and Schizophrenia: A Rose by Any Other Name?](https://academic.oup.com/schizophreniabulletin/article/27/2/197/1870998)
+
 [When Moralirty is the Enemy](https://juicyecumenism.com/2018/08/10/roger-wolsey/)
 
 [Terrorists and Democrats: Individual Reactions to International Attacks](https://www.jstor.org/stable/3792587)
