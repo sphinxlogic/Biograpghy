@@ -48,4 +48,6 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Spiritual Type Summaries](https://sites.google.com/site/godlypersonalities/spiritual-type-summaries)
 
+RIP Paul Allen
+
 ![My Office](office.jpg)
