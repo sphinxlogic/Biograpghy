@@ -16,6 +16,8 @@ I don't drink Alcholol, Smoke, or do illegal drugs. Moral, Loyal, Educated, Comp
 
 I resecenly gave a substancal gift to the University of Washignton's Presidents Fund in memory of my mother and father. In hope to maybe someday soon to build their Spin Operating System. 'Spin the Black Circle' ---Via Va La Vinyl
 
+[Competition in consumption as viewed by Jewish law](https://link.springer.com/article/10.1007/BF02388592)
+
 [Restoring Nobility to the Constitution](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2335822)
 
 [America Has a Nobility Problem](https://www.usatoday.com/story/opinion/2018/07/16/americas-nobility-problem-ruling-class-pays-no-consequences-failure-column/786512002/)
