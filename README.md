@@ -28,6 +28,8 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Conservitives Schizophinia CIA Unclassified](CIA-RDP90-00965R000605140002-7.pdf)
 
+[Evolutionary Relationships among Extinct and Extant Sloths: The Evidence of Mitogenomes and Retroviruses Moore Extant 1954](https://academic.oup.com/gbe/article/8/3/607/2574116)
+
 [When Moralirty is the Enemy](https://juicyecumenism.com/2018/08/10/roger-wolsey/)
 
 ![My Office](office.jpg)
