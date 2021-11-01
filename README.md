@@ -16,5 +16,6 @@ I don't drink Alcholol, Smoke, or do illegal drugs. Moral, Loyal, Educated, Comp
 
 I resecenly gave a substancal gift to the University of Washignton's Presidents Fund in memory of my mother and father. In hope to maybe someday soon to build their Spin Operating System. 'Spin the Black Circle' ---Via Va La Vinyl
 
+![Restoring Nobility to the Constitution](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2335822)
 
 ![My Office](office.jpg)
