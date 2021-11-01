@@ -46,4 +46,6 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Damned Nation: Hell in America from the Revolution to Reconstruction](https://www.amazon.com/Damned-Nation-America-Revolution-Reconstruction/dp/0190662042)
 
+[Spiritual Type Summaries](https://sites.google.com/site/godlypersonalities/spiritual-type-summaries)
+
 ![My Office](office.jpg)
