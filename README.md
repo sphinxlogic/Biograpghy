@@ -38,6 +38,8 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Politically Correct Labels and Schizophrenia: A Rose by Any Other Name?](https://academic.oup.com/schizophreniabulletin/article/27/2/197/1870998)
 
+[NIMH funding to shift away from DSM categories](https://www.apa.org/monitor/2013/07-08/nimh)
+
 [When Moralirty is the Enemy](https://juicyecumenism.com/2018/08/10/roger-wolsey/)
 
 [Terrorists and Democrats: Individual Reactions to International Attacks](https://www.jstor.org/stable/3792587)
