@@ -28,15 +28,11 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Conservitives Schizophinia CIA Unclassified](papers/CIA-RDP90-00965R000605140002-7.pdf)
 
-[It's No Delusion: Evolution May Favor Schizophrenia Genes](https://www.scientificamerican.com/article/evolution-may-favor-schizophrenia-genes/)
-
-[Stigmatization as an Environmental Risk in Schizophrenia: A User Perspective](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2659317/)
+[Maternal Influenza Viral Infection Causes Schizophrenia-Like Alterations of 5-HT2A and mGlu2 Receptors in the Adult Offspring](https://www.jneurosci.org/content/31/5/1863)
 
 [Evolutionary Relationships among Extinct and Extant Sloths: The Evidence of Mitogenomes and Retroviruses Moore Extant 1954](https://academic.oup.com/gbe/article/8/3/607/2574116)
 
 [11 of the oldest animals ever, ranked by age](https://www.businessinsider.com/some-of-worlds-oldest-animals-ranked-by-age-2019-4)
-
-[Politically Correct Labels and Schizophrenia: A Rose by Any Other Name?](https://academic.oup.com/schizophreniabulletin/article/27/2/197/1870998)
 
 [Alex Jones blames conspiracy claims on ‘psychosis’](https://apnews.com/article/us-news-texas-lawsuits-connecticut-north-america-d577b2fac08d40c4bf56a662a9ab04cd)
 
