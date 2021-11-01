@@ -44,4 +44,6 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Terrorists and Democrats: Individual Reactions to International Attacks](https://www.jstor.org/stable/3792587)
 
+[Damned Nation: Hell in America from the Revolution to Reconstruction](https://www.amazon.com/Damned-Nation-America-Revolution-Reconstruction/dp/0190662042)
+
 ![My Office](office.jpg)
