@@ -18,4 +18,6 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Restoring Nobility to the Constitution](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2335822)
 
+[Where Is Justice When Someone With Schizophrenia is Wronged?}(https://www.huffpost.com/archive/ca/entry/douglas-brown-schizophrenia_b_3377642)
+
 ![My Office](office.jpg)
