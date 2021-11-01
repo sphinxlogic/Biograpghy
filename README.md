@@ -26,7 +26,7 @@ I resecenly gave a substancal gift to the University of Washignton's Presidents 
 
 [Where Is Justice When Someone With Schizophrenia is Wronged?](https://www.huffpost.com/archive/ca/entry/douglas-brown-schizophrenia_b_3377642)
 
-[Conservitives Schizophinia CIA Unclassified](CIA-RDP90-00965R000605140002-7.pdf)
+[Conservitives Schizophinia CIA Unclassified](papers/CIA-RDP90-00965R000605140002-7.pdf)
 
 [It's No Delusion: Evolution May Favor Schizophrenia Genes](https://www.scientificamerican.com/article/evolution-may-favor-schizophrenia-genes/)
 
