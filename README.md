@@ -16,9 +16,13 @@ Vangaurad, Microsoft, Adobe, GOOGL, KSA, Apple, Macromedia, UBS, Fidelity, Blue 
 
 I don't drink Alcholol, Smoke, or do illegal drugs. Moral, Loyal, Educated, Computer Science, Music, Swimming, Driving Range and Reading, I am a Moore #1 Irish pedigree. and Heritage activist. Microsoft Partner and in Adobe contract. Royal Society of the Arts Fellow. I don't believe in making a persons heritage extinct only forward and extant. I frequently read Burke's Peerage. I do not support the Supreme Courts ruling on Vriginia V. Loving. I do support the U.S's involvment with UNESCO and the United Nations. And cultural heritage laws. And I don't support same sex marriage. I support Theism and the Abrahamic Religions. I now Democrats are neoliberalist, Republicans end up in assisted living and the GOP is the party of fear, libitarians jest get served the green party ends upp on the street. and indepedandents ask too much I stay away from politics. And I also believe society is zero sum and will only go to fairs. I received straight A's in computer science in college at Tenn Tech and a 3.0 at UVa. Recently downloaded my SCO Open Server 5 what used to be MIcrosoft Xenix and wanting to install it on my older desktop.
 
+My secret to staying young is I don't compete.
+
 I resecenly gave a substancal gift to the University of Washignton's Presidents Fund in memory of my mother and father. In hope to maybe someday soon to build their Spin Operating System. 'Spin the Black Circle' ---Via Va La Vinyl
 
 [Competition in consumption as viewed by Jewish law](https://link.springer.com/article/10.1007/BF02388592)
+
+[Disease competition as a factor in ecological studies of mortality: the case of urban centers ](https://pubmed.ncbi.nlm.nih.gov/3493534/)
 
 [Restoring Nobility to the Constitution](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2335822)
 
