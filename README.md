@@ -52,6 +52,6 @@ RIP Paul Allen
 
 ![My Office](office.jpg)
 
-![My Office](oxford.jpg)
+![My Office](Oxford.jpg)
 
-![My Office](rsa.jpg)
+![My Office](RSA.jpg)
