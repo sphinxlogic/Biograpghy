@@ -56,6 +56,9 @@ RIP Paul Allen
 
 ![My Office](office.jpg)
 
-![My Office](Oxford.jpg)
+![Oxford](Oxford.jpg)
 
-![My Office](RSA.jpg)
+![Royal Society of the Arts](RSA.jpg)
+
+![ADP](adp.png)
+
