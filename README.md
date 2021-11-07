@@ -18,7 +18,7 @@ I don't drink Alcholol, Smoke, or do illegal drugs. Moral, Loyal, Educated, Comp
 
 My secret to staying young is I don't compete.
 
-I resecenly gave a substancal gift to the University of Washignton's Presidents Fund in memory of my mother and father. In hope to maybe someday soon to build their Spin Operating System. 'Spin the Black Circle' ---Via Va La Vinyl
+I resecenly gave a substancal gift to the University of Washignton's Presidents Fund in memory of my mother and father. In hope to maybe someday soon to build their Spin Operating System. 'Spin the Black Circle' ---Viva Va La Vinyl
 
 [Competition in consumption as viewed by Jewish law](https://link.springer.com/article/10.1007/BF02388592)
 
